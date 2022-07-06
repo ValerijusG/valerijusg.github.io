@@ -1,2 +1,0 @@
-# valerijusg.github.io
-Nebaigta
